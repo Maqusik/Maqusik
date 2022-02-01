@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Max
+- 👀 I’m interested in coding Java
+- 🌱 I’m currently learning Java coding
+- 📫 How to reach me = discord - rolexio na froncie#0197
+- 🇵🇱 Poland 
